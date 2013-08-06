@@ -15,6 +15,7 @@
 		<p>We work according to Ontario laws and all employees are health and safety trained, have fall protection, WSIB and WHMIS training to ensure that everyone on site is working safely and that home or property owners will also be safe.</p>
 		<p>As a full service construction company, we are able to provide service at all levels from concept and design to construction and project management.
 			We hope to add you and your family to our growing list of happy clients that have become part of our extended family.  If you use us once, you’ll never use anyone else.</p>
+			I love puppies and how about you?
 	</div>
 
 
